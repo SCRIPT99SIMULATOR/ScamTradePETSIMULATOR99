@@ -1,1 +1,0 @@
-# ScamTradePETSIMULATOR99
